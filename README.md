@@ -1,1 +1,1 @@
-# Diary-
+# Personal Journal
